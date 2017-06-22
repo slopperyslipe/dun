@@ -6,4 +6,6 @@ never on earth
 hi
 
 
-damn you
+damn me
+
+i am annoyed with that shi
